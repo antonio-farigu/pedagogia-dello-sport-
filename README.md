@@ -1,5 +1,4 @@
-pedagogia-dello-sport-
-======================
+pedagogia-dello-sport
 
 La funzione dello sport come fattore educativo
 
