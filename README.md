@@ -27,9 +27,6 @@ quella specifica cultura.
 Questo quadro ci permette di interpretare il sistema dei
 valori come qualcosa di mutevole. I valori non possono
 essere mai stabiliti una volta per tutte in maniera univoca e
-Parte I – Emanuele Isidori
-_______________________________________________
-20
 definitiva, perché essi sono sempre il frutto di una costruzione
 che risente delle condizioni storiche, sociali, culturali,
 politiche, economiche ed ideologiche dell’epoca storica
@@ -38,12 +35,12 @@ L’uomo rappresenta un essere che può realizzarsi in varie
 modalità. L’educazione avvia l’uomo ad un processo di
 perfezionamento interminabile, che ha come scopo quello
 di compierlo e di realizzarlo pienamente nella sua modalità
-umana (Fullat, 1982). Per umanizzarsi, realizzandosi
+umana . Per umanizzarsi, realizzandosi
 progressivamente come “persona”, l’essere umano ha bisogno
 di acquisire livelli di consapevolezza sempre maggiori
 riguardo alla realtà, alle tecniche, agli atteggiamenti
 ed ai significati che caratterizzano l’ambiente nel quale esso
-è inserito (Isidori, 2005a). I valori aiutano la persona ad
+è inserito . I valori aiutano la persona ad
 avere una interpretazione dell’ambiente in cui vive, ad avere
 un ambito etico, un ethos.
 Questo ethos rappresenta il quadro - o meglio lo spazio -
@@ -65,19 +62,16 @@ o da una particolare religione. Nei sistemi morali sono spesso
 presenti norme e principi morali talvolta molto antichi, difficili da accettare
 e discutibili se letti alla luce delle condizioni storiche attuali e
 Pedagogia dello sport e valori
-_______________________________________________
-21
 I valori hanno lo scopo di orientare questa interpretazione
 da parte del soggetto nei confronti del mondo che lo
 circonda, tracciando in esso sentieri per l’agire. Nel caso
 dell’educazione, i valori servono ad orientare l’agire educativo
-(Pellerey, 1998), ad aiutare questo processo continuo
+, ad aiutare questo processo continuo
 di autotrasformazione intenzionale del soggetto nella
 sua dimensione personale e interiore, che si esplicita nel
 permanente movimento circolare di interpretazione e
 comprensione della realtà, che è alla base
 dell’apprendimento permanente dell’uomo e del suo sviluppo
-(Jarvis e Parker, 2005).
 I valori, tuttavia, non solo fungono da sistema di riferimento
 e da linee di orientamento concreto per l’agire educativo,
 ma rappresentano il presupposto del pensare etico
