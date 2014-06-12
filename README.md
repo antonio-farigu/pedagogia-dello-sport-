@@ -1,9 +1,11 @@
-pedagogia-dello-sport
+PEDAGOGIA DELLO SPORT
 
-La funzione dello sport come fattore educativo
+LA FUNZIONE DELLO SPORT IN EDUCAZIONE
 
 SPORT ED EDUCAZIONE AI VALORI NELLA SCUOLA
 QUADRO TEORICO E PROSPETTIVE DI RICERCA
+
+
 Finalità e modelli dello sport scolastico
 
 _______________________________________________
