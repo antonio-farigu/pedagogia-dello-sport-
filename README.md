@@ -6,7 +6,7 @@ QUADRO TEORICO E PROSPETTIVE DI RICERCA
 
 Finalità e modelli dello sport scolastico
 
-_______________________________________________
+
 Prima di affrontare dal punto di vista della pedagogia
 dello sport il tema dei valori educativi è necessario partire
 da alcune considerazione filosofiche generali, che possono
